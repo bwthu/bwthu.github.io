@@ -13,7 +13,7 @@ I like things that are fast in general:
 - Formula One: I’m a fan of Charles Leclerc and the Ferrari team. I really admire his driving skills and how he represents Ferrari with such passion and determination.
 - Starship and other rockets
 
-Meanwhile, I really like Arsenal and Barcelona—they’re my two favorite football clubs. **Bukayo Saka** and **Pedri** are the players I admire the most for their talent, creativity, and the energy they bring to the game.
+Meanwhile, I am a devoted supporter of Manchester United. Among all the legendary players, **Wayne Rooney** is my favorite and the one who inspired me the most. He was not only a prolific goal scorer but also an excellent playmaker, capable of dropping deep to link up play and create opportunities for his teammates.
 
 Here's a glance at some of the other things I've been involving in outside of my primary academic focus:
 
